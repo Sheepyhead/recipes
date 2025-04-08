@@ -22,7 +22,7 @@ Sauce Ingredients:
 1 Bunch Mint
 1 Bunch Parsley
 2 Cloves Garlic
-1 Jalapeno
+1 Jalapeno (substitute with some hot sauce)
 
 How to make Sauce:
 1. Add all ingredients in a blender and blend until smooth.
